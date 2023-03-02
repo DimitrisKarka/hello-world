@@ -2,4 +2,4 @@
 my first repository
 feels pretty amazing 
 feww what a journey!!1!!!
-making some more cahnges for trainin
+making some more cahnges 
