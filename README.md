@@ -1,5 +1,5 @@
 # hello-world
-my first repository
+first
 feels pretty amazing 
 feww what a journey!!1!!!
 making some more cahnges !!
