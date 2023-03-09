@@ -3,5 +3,3 @@
 1
 2
 oloi oi mpatsoi mpastardoi
-
-klp klp klp
